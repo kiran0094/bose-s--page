@@ -1,1 +1,0 @@
-# bose-s--page
